@@ -1,4 +1,4 @@
-# Samra Gebrehiwot
+# Native land and its proximity to Natural Gas plants
 
 samrag@uw.ed
 
